@@ -1,0 +1,2 @@
+#NOTLARIM
+dömfömdfömgömögfdşad
